@@ -1,0 +1,1 @@
+# spritzschutz-zell-osel
